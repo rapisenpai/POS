@@ -1,2 +1,2 @@
 # POS
-Thanks God, I finally done all of my projects. Yehey!!
+Thank God, I finally finished all of my projects. Yehey!!
